@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @alikyi
+- 👋 Hi, I’m @GorillaPrattNull
 - 👀 I’m interested in Living
 - 🌱 I’m currently learning Life
 - 💞️ I’m looking to collaborate on Life
